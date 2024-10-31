@@ -1,1 +1,1 @@
-# Inclusive_Yoga_A_Preventive_Epitome_For_Young_And_Adolescent_Diabetes
+# Inclusive Yoga - A Preventive Epitome For Young And Adolescent Diabetes
